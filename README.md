@@ -1,7 +1,1 @@
-# derrion212.github.io
-# derrion212.github.io
-# derrion212.github.io
-# derrion212.github.io
-# derrion212.github.io
-# derrion212.github.io
-# derrion212.github.io
+Derrion Mckinzie is the bomb.com
