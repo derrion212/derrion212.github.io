@@ -1,2 +1,2 @@
-Derrion 
-BFG x GBMG
+“I am the punishment of God...If you had not committed great sins, God would not have sent a punishment like me upon you.” ...
+- Ghengis khan
